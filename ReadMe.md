@@ -1,5 +1,5 @@
 # 💫 About Me:
-Computer Engineering student • Competitive Programmer • Future ICPC World Champion 🏆<br>
+Computer Engineering student • Competitive Programmer • Future World Champion 🏆<br>
 
 
 ## 🌐 Socials:
